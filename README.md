@@ -1,2 +1,0 @@
-
-# prawdziwe polskie kolonie
